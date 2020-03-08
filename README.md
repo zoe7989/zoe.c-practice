@@ -9,5 +9,5 @@ But then I realized that, I don't need to be her or anyone else, I just need to 
 
 As a upcoming digital marketing program student, I want to specialized in programming and choose fronend developer as my future career.
 
-I'm ready to fail, and then try over and over again as much as possible utill it suceed.
+I'm ready to fail, and then try over and over again as much as possible utill I suceed.
 
